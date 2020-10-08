@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+#### You found my personal profile, that's awesome!
+
+#### Since there is nothing else here, you can spend your time [here](https://corgiorgy.com/)
+
+
+
 <!--
 **programming-potatoe/programming-potatoe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
