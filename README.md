@@ -2,7 +2,7 @@
 
 #### You found my personal profile, that's awesome!
 
-#### Since there is nothing else here, you can spend your time [here](https://corgiorgy.com/)
+#### Since there is not a lot going on here, you can spend your time [here](https://corgiorgy.com/)
 
 
 
